@@ -1,0 +1,1 @@
+CR7, a proekt legko zapystit kstati
